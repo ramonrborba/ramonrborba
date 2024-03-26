@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Crypto
 - 💞️ I’m looking to collaborate on ...to the crypto world
 - 📫 How to reach me ... just call
-- 😄 Pronouns: ...whatnot
+- 😄 Pronouns: ...what not
 - ⚡ Fun fact: ...
 
 <!---
